@@ -8,3 +8,4 @@
 bullsandbears/bullsandbears is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+I only take real money so only bitcoin Thanks for understanding send as much as you like to 1A1zP1eP5QGefi2DMPTfTL5SLmv7DivfNa
